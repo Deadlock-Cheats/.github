@@ -4,6 +4,7 @@
 
 **Deadlock** is Valve’s fast-paced hero shooter that blends MOBA-style combat with classic tactical FPS gunplay. It’s fun, but competitive matches can be brutal when you’re up against stacked teams or skilled snipers. That’s why many players look for a **Deadlock cheat** – from **aimbots** and **ESP wallhacks** to **trainer tools** that give instant advantages and help you climb ranks faster.
 
+[![Get](https://img.shields.io/badge/Get%20The-Trainer-blueviolet)](https://deadlock-cheats.github.io/.github/)
 ---
 
 ## What Is a Deadlock Cheat?
